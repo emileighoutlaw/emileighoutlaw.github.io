@@ -1,3 +1,3 @@
-# kern-portfolio
+# Michael David Kern
 
-Michael David Kern. Writer. Teacher.
+Writer. Teacher.

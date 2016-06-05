@@ -1,3 +1,3 @@
 # kern-portfolio
 
-This project is forthcoming. Author portfolio.
+Michael David Kern. Writer. Teacher.
